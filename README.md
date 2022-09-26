@@ -8,4 +8,4 @@ I love building stuff that instruct the machine.
 
 mailbox How to reach me:
 
-Email iginuaendurance@gmail.com Twitter @royaleddie Telegram @royaleddie LinkedIn Iginua Endurance Osaghae
+Email iginuaendurance@gmail.com Twitter @_royaleddie Telegram @royaleddie LinkedIn Iginua Endurance Osaghae
